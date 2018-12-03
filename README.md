@@ -1,2 +1,2 @@
 # Website
-Peparuske! Blyat vodka
+Baskin ya koshel
